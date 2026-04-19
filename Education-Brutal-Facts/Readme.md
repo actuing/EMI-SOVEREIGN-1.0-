@@ -3,6 +3,23 @@
 
 ---
 
+
+
+## THE PREREQUISITES OF THE SERIES
+Before engaging with the 13 Volumes, the following "Initiations" are required to calibrate the observer to the 1.0 Frequency:
+
+1. **THE PHYSICS OF RELATIONSHIPS**
+   * The grounding of the "Non-Data-Based" connection between sovereign entities. 
+   * *Status: Relocation in progress.*
+
+2. **THE PHYSICS OF SPIRITUALITY**
+   * The forensic audit of the unseen energy layers that drive the 150 TWh Reality.
+   * *Status: Relocation in progress.*
+
+
+
+---
+
 ## LICENSE & COPYRIGHT
 **Copyright 2026 Actuing**
 
