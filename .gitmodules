@@ -1,0 +1,4 @@
+[submodule "Sovereign-Protocol"]
+    path = Protocol
+    url = https://github.com/actuing/Sovereign-Protocol-
+ 
